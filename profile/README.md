@@ -16,10 +16,15 @@ We believe in a collaborative and communicative approach to project management �
 Our team of developers has expertise in various technologies, including:
 
 Java ☕️
+
 Python 🐍
+
 JavaScript 🌐
+
 Node.js 🟢
+
 React ⚛️
+
 Angular 🅰️
 
 ## Our Commitment
