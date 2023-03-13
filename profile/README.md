@@ -28,6 +28,6 @@ We are committed to providing our clients with exceptional service and deliverin
 
 ##  Contact Us
 
-Interested in learning more about how we can help you with your next project? Please reach out to us at ldtan@maniacbears.com to discuss your needs and schedule a consultation 📩.
+Interested in learning more about how we can help you with your next project? Please reach out to us at sales@maniacbears.com to discuss your needs and schedule a consultation 📩.
 
 Thank you for visiting our profile! 🐻👨‍💻
